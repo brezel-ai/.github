@@ -1,0 +1,1 @@
+at brezel.ai, we're building tools that bring AI to SMEs. Our apps make sophisticated market research accessible without the need for expensive consultants. We put enterprise grade intelligence in your hands, helping you make data-driven decisions with the same confidence as industry giants, at a fraction of the cost.
